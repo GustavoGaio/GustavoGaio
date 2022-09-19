@@ -1,0 +1,5 @@
+- [- 👋 Oi, eu sou @GustavoGaio
+- 👀 Estou interessado em aprender.
+- 🌱 Estou aprendendo muito.
+- 💞️ Estou procurando colaborar em todos aprenderem.
+- 📫 Como chegar até mim é so seguir no insta @gaiogustavo.
